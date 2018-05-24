@@ -1,2 +1,2 @@
 # literally_negative_ideas
-i guess its my portfolio that i was told to have but it most likely won't have anything in it except for a blank readme file
+i guess its my portfolio that i was told to have but it most likely won't have anything in it except for my complaints.  i act negative because someone tells me that i don't have to do something and then someone with the same or less authority says i have to do said task and then don't give me a reason. i need a valid reason for doing things not like "because i said so" or "because you were told to, and that is why my grades are garbage. because nobody can give me a valid operating reason for why i should do something.
